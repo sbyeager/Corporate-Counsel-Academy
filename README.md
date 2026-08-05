@@ -1,1 +1,1 @@
-Corporate Practice Academy
+Corporate Counsel Academy
